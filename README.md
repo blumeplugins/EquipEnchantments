@@ -11,6 +11,12 @@ d37eae02-cd8e-4e9c-b9d3-313b59ce792f
 f634699c-443b-4a68-abe3-b8d382f5436d
 <!-- BLUMECORE-YOUTUBER:qYpoGIBiekAYGamzabmB:END -->
 
+# BlumeCore: EinfachGustaf
+<!-- BLUMECORE-YOUTUBER:9xOmpBV2UwZLnrVVBvaZ:START -->
+becb0eab-c77b-4f2b-a358-cd8c41c41a8d
+e1ddb0a9-ee26-47e4-957f-d338d6161b1b
+<!-- BLUMECORE-YOUTUBER:9xOmpBV2UwZLnrVVBvaZ:END -->
+
 # BlumeCore: Parkillerz
 <!-- BLUMECORE-YOUTUBER:N3xsWd7lMDUmH8iPRWtj:START -->
 8f407f29-695d-469c-9be7-68b98acc9007
